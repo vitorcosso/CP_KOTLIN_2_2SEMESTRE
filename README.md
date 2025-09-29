@@ -1,0 +1,6 @@
+- Dimitris Assis Lopes - RM 550120 
+- Vitor Cosso- RM 98231
+- Henrique Peduto - RM 93658 
+- Felipe Marino - RM 98805
+- Thiago Scaciota - RM 550186 
+- Joao Vitor Nava - 
